@@ -66,7 +66,7 @@ CAPITULO 10
 
 ![image](https://user-images.githubusercontent.com/105686218/177703826-4c244a38-bdae-479d-8723-34f73771a32b.png)
 
-![image](https://user-images.githubusercontent.com/105686218/177703843-81855f8e-ca1e-458b-84e3-f3e83afaef29.png)
+![image](https://user-images.githubusercontent.com/105686218/177704082-6cc4ece4-e897-41ac-957f-50240e87bab3.png)
 
 ![image](https://user-images.githubusercontent.com/105686218/177703876-9e7df543-67db-4a24-b488-0eaad8aa9be3.png)
 
